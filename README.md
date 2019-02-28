@@ -1,1 +1,1 @@
-# blankmylife.github.io
+# Blank My Life
